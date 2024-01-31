@@ -8,3 +8,5 @@ Kagbeni
 Rang de Basanti
 Udan
 Cast Away
+Green Miles
+Note: These are the list of movies which anybody should watch in their life time.
